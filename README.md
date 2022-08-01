@@ -1,1 +1,1 @@
-Deadstar Love
+"Deadstar Love"
